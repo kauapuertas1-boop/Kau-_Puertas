@@ -74,7 +74,7 @@
 
 ## 📫 Contato
 
-📧 Email: seuemail@email.com  
+📧 Email: kauapuertas1@gmail.com
 💼 LinkedIn: coloque seu linkedin aqui
 
 ---
