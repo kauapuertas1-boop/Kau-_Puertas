@@ -16,4 +16,4 @@
 
 ## 📫 Contato
 - LinkedIn: (coloque seu linkedin)
-- Email: (seu email)
+- Email: (kauapuertas1@gmail.com)
